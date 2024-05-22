@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **oluomicheal8@gmail.com**
 
-- ⚡ Fun fact **Did I mention how passionate I am?😁😎**
+- ⚡ **Did I mention how passionate I am?😁😎**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
